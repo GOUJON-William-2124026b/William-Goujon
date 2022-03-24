@@ -9,3 +9,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on League Of Legends avec Nilsou18 et Avery16
 - ⚡ Fun fact: My name is William Goujon alias le meilleur support d'europe (crois le !)
 
+Hasta la vista yé suis trilingue
